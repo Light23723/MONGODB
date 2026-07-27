@@ -1,1 +1,0 @@
-Quelques ressources d'exercices
